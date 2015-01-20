@@ -1,0 +1,1 @@
+Just a repository containing source for blogposts I have made in various places. Not very exciting.
