@@ -1,0 +1,3 @@
+Clearing the New Year backlog of interesting leasehold decisions, *Gater v Wellington Real Estate* [LRX 54 2014](http://www.landstribunal.gov.uk/Aspx/view.aspx?id=1101) (decided late last year) is a reaffirmation of the principle established by the Upper Tribunal in *Windermere Marina Village v Wild* [[2014] UKUT 163 (LC)](http://www.bailii.org/uk/cases/UKUT/LC/2014/163.html) that a clause in a lease that provides for a determination of the percentage apportionment of service charges by the landlord is void. 
+
+[Our post](http://nearlylegal.co.uk/blog/2014/06/dont-ask-surveyor/) on *Windermere*
